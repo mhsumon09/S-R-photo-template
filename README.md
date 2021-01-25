@@ -1,0 +1,1 @@
+# S-R-photo-template
